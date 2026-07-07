@@ -16,6 +16,7 @@ Abaixo está a tabela com os títulos que mais marcaram a jornada. Sinta-se à v
 | 📺 Série | *Vikings* | Drama | Netflix | ⭐⭐⭐⭐⭐ |
 | 🎮 Jogo | *God of War* | Ação / Aventatura | Play Station 2 | ⭐⭐⭐⭐⭐ |
 | 🎞️ Filme | *Clube da Luta* | Ação / Crime | Paramount+ | ⭐⭐⭐⭐⭐ |
+| 🎞️ Filme | *Devoradores de Estrelas* | Ficção Científica | Prime Video | ⭐⭐⭐⭐⭐ |
 
 ---
 
